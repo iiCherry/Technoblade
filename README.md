@@ -1,0 +1,2 @@
+# Technoblade
+RIP Technoblade
