@@ -1,2 +1,1 @@
-# Technoblade
-RIP Technoblade
+### /Technoblade
